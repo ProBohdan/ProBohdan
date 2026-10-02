@@ -41,7 +41,7 @@ Proven track record in structuring private investment portfolios (**€500M+ AUA
 
 ---
 
-### 📁 Featured Anonymized Case Studies
+### 📁 Featured Case Studies
 
 #### 🏭 Industrial Construction & Modernization (€150M Project)
 - **Sector:** Building Materials Manufacturing
